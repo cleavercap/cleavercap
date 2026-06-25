@@ -6,5 +6,5 @@
 
    
 <p align="center">
-  (rentries im trading - https://rentry.co/urlhavendotcom)
+  (other websties n moer- https://rentry.co/urlhavendotcom)
    </p>
