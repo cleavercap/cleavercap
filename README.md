@@ -2,7 +2,7 @@
 
 > "Like hunting rabbit."
 
-hi um call me **S**unset or **J**ack
+hi um call me **S**unset or **J**ack , I am 14 years old
 
 **IWC** especially after fsr / fts / gtc / mafia, we get pretty pissy after / during                
 *[ im pretty pissy and whiny like 24/7 so i dont think that matters ]*
