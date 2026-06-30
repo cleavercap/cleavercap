@@ -2,14 +2,14 @@
 
 > "Like hunting rabbit."
 
-hi um call me **S**unset or **J**ack
+hi um call me **S**unset or **J**ack and **IWC** especially after fsr / fts / gtc / mafia, we get pretty pissy after / during thats all you need to know
 
 
 
-<img width="480" height="80" alt="d0996fbb" src="https://github.com/user-attachments/assets/631eaa61-5338-4653-a3d2-5fd38f6e51bb" />
+--------------------------
 
 
-**IWC** especially after fsr / fts / gtc / mafia, we get pretty pissy after / during
+
 
 
 
