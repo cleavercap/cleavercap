@@ -9,7 +9,9 @@ hi um call me **S**unset or **J**ack , I am 14 years old
 
 **ENDO** / **WILLOGENIC** systems dni if you can uhm thanks !!!!! ◝(ᵔᗜᵔ)◜
 
-thats all you need to know okay bye
+thats all you need to know okay bye . . I said BYE FUCK OFF
+
+**I LIKE** ,, The Butchery , Guts & Blackpowder , Furhazard Facility , Blood Debt , MY GUILT WILL NOT PURIFY ME , Onion/Ongezelling , Yu-gi-oh , Parkour Civilization , Bunnies , Horses , Hotline Miami , Saga Of Tanya The Evil , Golden Kamuy , SCP Foundation , Invicible , Hetalia , and others
 
 
 
