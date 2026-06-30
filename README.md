@@ -11,7 +11,7 @@ hi um call me **S**unset or **J**ack , I am 14 years old
 
 Gomen if you get tired of me saying im gay it's kind of something i can't stop myself from saying ahah( ദ്ദി ˙ᗜ˙ )( ദ്ദി ˙ᗜ˙ )( ദ്ദി ˙ᗜ˙ )
 
-**MY CLOSE FRIENDS** ,, Morning , Arthur , Pastelchocolate , Ryls , 2017 💝
+**MY CLOSE FRIENDS** ,, Morning , Arthur , Pastelchocolate , Ryls , 2017 / Inversaldamage 💝
 
 thats all you need to know okay bye . . I said BYE FUCK OFF
 
