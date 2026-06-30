@@ -1,6 +1,18 @@
 # iwc <img width="20" height="20" alt="red-039" src="https://github.com/user-attachments/assets/658ec4ea-597c-4a18-b1fc-f5bbb5e30783" />
 
-> Like hunting rabbit.
+> "Like hunting rabbit."
+
+hi um call me **S**unset or **J**ack
+
+
+
+<img width="480" height="80" alt="d0996fbb" src="https://github.com/user-attachments/assets/631eaa61-5338-4653-a3d2-5fd38f6e51bb" />
+
+
+**IWC** especially after fsr / fts / gtc / mafia, we get pretty pissy after / during
+
+
+
 <img width="736" height="447" alt="000388659e6df9f8ab201ee25cf9341e" src="https://github.com/user-attachments/assets/3be94afb-9095-4775-8468-e034f36901bc" />
 
 -----------------------
