@@ -9,7 +9,7 @@ hi um call me **S**unset or **J**ack , I am 14 years old
 
 **ENDO** / **WILLOGENIC** systems dni if you can uhm thanks !!!!! ◝(ᵔᗜᵔ)◜
 
-Gomen if you get tired of me saying im gay it's kind of a vocal stim and i can't help it . . ( ദ്ദി ˙ᗜ˙ )
+Gomen if you get tired of me saying im gay it's kind of something i can't stop myself from saying ahah( ദ്ദി ˙ᗜ˙ )( ദ്ദി ˙ᗜ˙ )( ദ്ദി ˙ᗜ˙ )
 
 thats all you need to know okay bye . . I said BYE FUCK OFF
 
