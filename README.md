@@ -13,11 +13,13 @@ hi um call me **S**unset or **J**ack , I am 14 years old
 
 thats all you need to know okay bye . . I said BYE FUCK OFF
 
-**I LIKE** ,, The Butchery , Guts & Blackpowder , Furhazard Facility , Blood Debt , MY GUILT WILL NOT PURIFY ME , Onion/Ongezelling , Yu-gi-oh , Parkour Civilization , Bunnies , Horses , Hotline Miami , Saga Of Tanya The Evil , Golden Kamuy , SCP Foundation , Invicible , Hetalia , Zero Day , and others
+**I LIKE** ,, The Butchery , Guts & Blackpowder , Furhazard Facility , Blood Debt , MY GUILT WILL NOT PURIFY ME , Onion/Ongezelling , Minecraft , Yu-gi-oh , Parkour Civilization , Bunnies , Horses , Hotline Miami , Saga Of Tanya The Evil , Golden Kamuy , SCP Foundation , Invicible , Hetalia , Zero Day , and others
 
 **I YUME WITH** ,, Seawatt [ PARKOUR CIVILIZATION ] , William Hillwalker [ THE BUTCHERY ] , Jackson Hillwalker [ THE BUTCHERY ] , Oksan Ryosha [ BLOOD DEBT ] , Veronika Kazakova [ BLOOD DEBT ] , Ryman Yegerov [ BLOOD DEBT ]
 
 **FICTKINS** , Dr. Alto Clef [ SCP FOUNDATION ] , EVBO [ PVP / PARKOUR CIVILIZATION ]
+
+> i think i'll genuinely get jumped if I don't mention this but I do alternate from using I / Me and We / Us on myself sometimes , it's just more comfortable for me to use
 
 --------------------------
 
