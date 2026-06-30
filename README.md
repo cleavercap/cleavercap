@@ -2,7 +2,7 @@
 
 > "Like hunting rabbit."
 
-****( / CLEFDRAKI ON ARTFIGHT ! ! CHECK ME OUT :D )****
+****( / [CLEFDRAKI](https://artfight.net/~clefdraki) ON ARTFIGHT ! ! CHECK ME OUT :D )****
 
 hi um call me **S**unset or **J**ack , I am 14 years old
 
