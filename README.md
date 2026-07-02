@@ -1,6 +1,8 @@
 # iwec <img width="20" height="20" alt="red-039" src="https://github.com/user-attachments/assets/658ec4ea-597c-4a18-b1fc-f5bbb5e30783" />
 
-> "Like hunting rabbit."
+> "No , no , I respect your boundaries."
+
+<img width="384" height="384" alt="oNdL404" src="https://github.com/user-attachments/assets/7be22b5c-55d9-45fb-84cd-70aa016c7a28" />
 
 ****( / [CLEFDRAKI](https://artfight.net/~clefdraki) ON ARTFIGHT ! ! CHECK ME OUT :D )****
 
@@ -31,6 +33,7 @@ thats all you need to know okay bye . . I said BYE FUCK OFF
 
 
 <img width="736" height="447" alt="000388659e6df9f8ab201ee25cf9341e" src="https://github.com/user-attachments/assets/3be94afb-9095-4775-8468-e034f36901bc" />
+
 
 -----------------------
 
