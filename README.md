@@ -68,3 +68,5 @@ thats all you need to know okay bye . . I said BYE FUCK OFF
 <img width="150" height="20" alt="775632b0394c5bd56271e83042d23a9436635d42" src="https://github.com/user-attachments/assets/a6e02dfb-837c-4a04-9933-d251ac989962" />
 <img width="150" height="20" alt="9f4284b961afbe5324ad61949a14bd570cd233b2" src="https://github.com/user-attachments/assets/7b3da137-8ea7-4337-a16e-13206bc01c4f" />
 
+![TEST](https://komarev.com/ghpvc/?username=cleavercap&abbreviated=true)
+
