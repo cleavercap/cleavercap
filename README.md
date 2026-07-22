@@ -13,9 +13,11 @@ hi um call me **S**unset or **J**ack , I am 14 years old
 
 If you **IDENTIFY** as something **HARMFUL** plz dni if you can uhm thanks !!!!! ◝(ᵔᗜᵔ)◜
 
-**MY CLOSE FRIENDS** ,, Morning , Arthur , Pastelchocolate , Ryls , R3AL1TY , Inversaldamage 💝
+**MY FRIENDS** ,, Morning , Arthur , Pastelchocolate , Ryls , R3AL1TY , Meepcat , Inversaldamage 💝
 
-(whole sec is a wip rn)
+**I DONT** really enjoy socializing with people I barely know unless they ' re one of my friends so
+
+**I BLOCK** freely and I do not unblock / unhide people too often ESPECIALLY WHEN YOU WHISPER MY FRIEND THAT YOU ' RE GOING TO ~~KYS~~ OVER IT ?
 
 thats all you need to know okay bye . . I said BYE FUCK OFF
 
