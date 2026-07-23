@@ -33,7 +33,7 @@ thats all you need to know okay bye . . I said BYE FUCK OFF
 
 **I YUME WITH** ,, Seawatt [ PARKOUR CIVILIZATION ] , Jackson Hillwalker [ THE BUTCHERY ] , Oksan Ryosha [ BLOOD DEBT ] , Veronika Kazakova [ BLOOD DEBT ] , Ryman Yegerov [ BLOOD DEBT ] .                                
 
-**FICTKINS** , Dr. Alto Clef [ SCP FOUNDATION ] , EVBO [ PVP / PARKOUR CIVILIZATION ] ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀*And again , if you yumeship with Dr. Clef or Evbo in general please dni it does make me uncomfy*
+**FICTKINS** , Dr. Alto Clef [ SCP FOUNDATION ] , EVBO [ PVP / PARKOUR CIVILIZATION ]
 
 <sub>**OTHER** , beginner at typology , i like bonesaws and cleavers</sub>
 
