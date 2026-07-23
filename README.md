@@ -19,7 +19,7 @@ hi um call me **S**unset or **J**ack , I am 14 years old
 
 **IWEC** or just dont interact at all unless you're oomf because im full of hate and negativity and will lash out on you
 
-If you **IDENTIFY** as something **HARMFUL** plz dni if you can uhm thanks !!!!! ◝(ᵔᗜᵔ)◜
+If you **IDENTIFY** as something **HARMFUL** plz dni uhm thanks !!!!! ◝(ᵔᗜᵔ)◜
 
 **MY CLOSE FRIENDS IG?** ,, Morning , Arthur , Pastelchocolate , Ryls , R3AL1TY , Meepcat , Inversaldamage 💝
 
