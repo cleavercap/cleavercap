@@ -23,7 +23,7 @@ If you **IDENTIFY** as something **HARMFUL** plz dni if you can uhm thanks !!!!!
 
 **MY CLOSE FRIENDS IG?** ,, Morning , Arthur , Pastelchocolate , Ryls , R3AL1TY , Meepcat , Inversaldamage 💝
 
-**I DONT** really enjoy socializing with people I barely know unless they ' re one of my friends nor am I good at talking with people in general so
+**I DONT** really enjoy socializing with people I barely know unless they ' re one of my friends nor am I good at talking with people in general or good at making friends
 
 **I BLOCK** freely and I do not unblock / unhide people too often ESPECIALLY WHEN YOU WHISPER MY FRIEND THAT YOU ' RE GOING TO ~~KYS~~ OVER IT ? I also block / hide over the littlest things so don ' t be suprised when I block you for making me mad
 
